@@ -1,2 +1,2 @@
-Harvey and Louis fought about Harvey's new car
-Luke Skywalker eats a banana for the first time, He said it was bad
+Harvey and Louis fought about Harvey's new car. It was an  old car that Louis wanted but Harvey got it
+Luke Skywalker eats a banana for the first time, He said it was bad. It turns out the banana was spoiled.
